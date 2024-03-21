@@ -1,4 +1,5 @@
-![MasterHead](https://i.pinimg.com/originals/1a/54/e5/1a54e518e8c89a0ef3b4e47f6070ec71.gif) ![MasterHead](https://i.pinimg.com/originals/1a/54/e5/1a54e518e8c89a0ef3b4e47f6070ec71.gif)
+![MasterHead](https://i.pinimg.com/originals/1a/54/e5/1a54e518e8c89a0ef3b4e47f6070ec71.gif) 
+![MasterHead](https://i.pinimg.com/originals/1a/54/e5/1a54e518e8c89a0ef3b4e47f6070ec71.gif)
 
 <h1 align="center">Hello it's Pawan Jung here.</h1> 
 <h3 align="center">The guy who loves Technology, Economy, and Entrepreneurship</h3>
