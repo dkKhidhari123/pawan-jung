@@ -1,4 +1,4 @@
-[![MasterHead](https://cdn.weasyl.com/~fluffkevlar/submissions/30165/efb64790c6059bf9f32f9922bdfd36fad18bdd135aff5f67e99a7f0f29749042/fluffkevlar-starfield-gif.gif)](https://rishavchanda.io)
+![MasterHead](https://i.pinimg.com/originals/1a/54/e5/1a54e518e8c89a0ef3b4e47f6070ec71.gif) ![MasterHead](https://i.pinimg.com/originals/1a/54/e5/1a54e518e8c89a0ef3b4e47f6070ec71.gif)
 
 <h1 align="center">Hello it's Pawan Jung here.</h1> 
 <h3 align="center">The guy who loves Technology, Economy, and Entrepreneurship</h3>
