@@ -1,4 +1,3 @@
-![MasterHead](https://media1.tenor.com/images/b5600c8d47cf5a7fdf61ceb4241e170c/tenor.gif?itemid=18739276) 
 <h1 align="center">Hello it's Pawan Jung here.</h1> 
 <h3 align="center">The guy who loves Technology, Economy, and Entrepreneurship</h3>
 <img align="right" alt="laado chus" width="1000" src="https://media1.tenor.com/m/cbqkmBU0a4gAAAAC/show-me-the-money-rich.gif">
